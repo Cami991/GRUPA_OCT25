@@ -1,0 +1,1 @@
+# GRUPA_OCT25
